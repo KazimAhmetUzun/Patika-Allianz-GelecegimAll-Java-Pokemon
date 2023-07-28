@@ -1,0 +1,1 @@
+# Patika-Allianz-GelecegimAll-Java-Pokemon
